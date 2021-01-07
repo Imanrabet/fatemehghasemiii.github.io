@@ -67,7 +67,7 @@
 
 + [Resume and cover letter](https://github.com/fatemehghasemiii/PNU_3991_AR/blob/main/XX_CV_CheckList_AR_3991.pdf)
 
-+ [Public Sector Evaluation Summary](https://github.com/fatemehghasemiii/PNU_3991_AR/blob/main/XX_CV_CheckList_AR_3991.pdf)
++ [Public Sector Evaluation Summary](https://github.com/fatemehghasemiii/PNU_3991_AR/blob/main/XX_GeneralSection_CheckList_AR_3991.pdf)
 
 
 [رزومه فارسی](/resume-fa)
