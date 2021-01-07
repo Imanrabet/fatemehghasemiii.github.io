@@ -63,9 +63,12 @@
 + fatemehghasemi78780@gmail.com 
 + https://quera.ir/profile/fatemehghasemi73780
 
+>Assessment
 
+[Resume and cover letter](https://github.com/fatemehghasemiii/PNU_3991_AR/blob/main/XX_CV_CheckList_AR_3991.pdf)
+[Public Sector Evaluation Summary](https://github.com/fatemehghasemiii/PNU_3991_AR/blob/main/XX_CV_CheckList_AR_3991.pdf)
 
 
 [رزومه فارسی](/resume-fa)
 <br>
-<a href="http://s16.picofile.com/file/8412117484/%D8%B1%D8%B2%D9%88%D9%85%D9%87_%D9%81%D8%A7%D8%B7%D9%85%D9%87_%D9%82%D8%A7%D8%B3%D9%85%DB%8C_%D9%86%DB%8C%D8%A7%D8%B3%D8%B1.pdf.html">Download resume</a>
+<ahref="http://s16.picofile.com/file/8412117484/%D8%B1%D8%B2%D9%88%D9%85%D9%87_%D9%81%D8%A7%D8%B7%D9%85%D9%87_%D9%82%D8%A7%D8%B3%D9%85%DB%8C_%D9%86%DB%8C%D8%A7%D8%B3%D8%B1.pdf.html">Download resume</a>
